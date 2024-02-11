@@ -1,2 +1,0 @@
-# byistvo.ru
-tetetetete
